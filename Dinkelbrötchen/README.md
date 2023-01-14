@@ -7,7 +7,7 @@
 - 700 g Dinkelmehl Typ 630
 - 100 g Dinkel-Vollkornmehl
 - 100 g Haferflocken Feinblatt
-- 620 ml Wasser (Zimmertemperatur)
+- 610 ml Wasser (Zimmertemperatur)
 - 30 g frische Hefe
 - 2 EL Zucker
 - 2 TL Salz
