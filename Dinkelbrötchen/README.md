@@ -8,7 +8,7 @@
 - 100 g Dinkel-Vollkornmehl
 - 100 g Haferflocken Feinblatt
 - 610 ml Wasser (Zimmertemperatur)
-- 30 g frische Hefe
+- 21 g frische Hefe
 - 2 EL Zucker
 - 2 TL Salz
 - 2 EL Olivenöl
