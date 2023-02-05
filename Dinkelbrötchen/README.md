@@ -74,7 +74,7 @@ Dort bleibt der Teig dann für 8 Stunden (alternativ reicht bei Zimmertemperatur
 Der Teig sollte dann schön aufgehen. Bei zu langer Wartezeit quillt der Teig über, daher sollte man ihn gut im Auge behalten bzw. regelmäßig kontrollieren.
 
 ### Die Teiglinge
-Ist die Gehzeit um, lege ich zwei Backbleche mit Backpapier aus. Den Backofen stelle ich auf Ober-/Unterhitze bei 200 °C ein und lasse ihn vorheizen.
+Ist die Gehzeit um, lege ich zwei Backbleche mit Backpapier aus. Den Backofen stelle ich auf Ober-/Unterhitze bei 200 °C (Umluft 180 °C) ein und lasse ihn vorheizen.
 
 Anfangs hatte ich beide Bleche immer gleichzeitig vorbereitet und zusammen in den Ofen geschoben. Das hat sich allerdings nicht bewährt, 
 da die unteren Brötchen dann nicht so knusprig wurden und deutlich länger brauchten, während die Brötchen des oberen Bleches schon fertig waren. 
