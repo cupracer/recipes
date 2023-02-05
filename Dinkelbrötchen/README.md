@@ -4,10 +4,39 @@
 ## Zutaten
 
 ### Für den Teig
+Die Zusammensetzung der Zutaten wirkt sich auf Konsistenz, Volumen und Gewicht der Brötchen aus.
+
+#### Variante 1 - klassisch
+(Gewicht pro Teigling: ca. 86 g)
+
 - 700 g Dinkelmehl Typ 630
-- 100 g Dinkel-Vollkornmehl
-- 100 g Haferflocken Feinblatt
-- 610 ml Wasser (Zimmertemperatur)
+- ***100 g Dinkel-Vollkornmehl***
+- ***100 g Haferflocken Feinblatt***
+- ***610 ml Wasser (Zimmertemperatur)***
+- 21 g frische Hefe
+- 2 EL Zucker
+- 2 TL Salz
+- 2 EL Olivenöl
+
+#### Variante 2 - herzhaft
+(Gewicht pro Teigling: ca. 97 g)
+
+- 700 g Dinkelmehl Typ 630
+- ***150 g Dinkel-Vollkornmehl***
+- ***150 g Haferflocken Feinblatt***
+- ***675 ml Wasser (Zimmertemperatur)***
+- 21 g frische Hefe
+- 2 EL Zucker
+- 2 TL Salz
+- 2 EL Olivenöl
+
+#### Variante 2 - Sattmacher
+(Gewicht pro Teigling: ca. 102 g)
+
+- 700 g Dinkelmehl Typ 630
+- ***200 g Dinkel-Vollkornmehl***
+- ***200 g Haferflocken Feinblatt***
+- ***655 ml Wasser (Zimmertemperatur)***
 - 21 g frische Hefe
 - 2 EL Zucker
 - 2 TL Salz
@@ -52,10 +81,10 @@ da die unteren Brötchen dann nicht so knusprig wurden und deutlich länger brau
 Daher backe ich nun beide Bleche nacheinander. Da die Teigportionen auf dem Blech leicht verlaufen, 
 bereite ich auch das zweite Blech erst nach einer Wartezeit vor.
 
-Ich stelle die Schüssel auf eine Waage, entnehme pro Portion ca. 90 Gramm Teig und verteile 9 Portionen auf das erste Blech. 
+Ich stelle die Schüssel auf eine Waage, entnehme den Teig pro Portion (siehe Zutaten) und verteile 9 Portionen auf das erste Blech. 
 Das klappt ganz gut mit Hilfe zweier Esslöffel: Der eine Löffel hält den Teig und mit dem anderen Löffel wird der Teig auf dem Blech abgestreift. 
 Da der Teig inzwischen sehr zäh und klebrig geworden ist, klappt das mit dem genauen Abwiegen nicht so einfach. 
-Eine Abweichung von +/- 5 Gramm ist in Ordnung. 
+Eine leichte Abweichung der Menge ist in Ordnung. 
 
 Es ist übrigens nicht nötig, die genaue Menge mit einem einzigen Löffel zu treffen. 
 Nach meiner Erfahrung kann man auch mehrere kleine Teigportionen zusammengeben, ohne dass später beim Backen Luftlöcher entstehen.
