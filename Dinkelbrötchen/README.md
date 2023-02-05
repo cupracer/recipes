@@ -53,15 +53,16 @@ Die Zusammensetzung der Zutaten wirkt sich auf Konsistenz, Volumen und Gewicht d
 Zunächst gebe ich das Wasser und die kleingebröselte Hefe in eine Backschüssel und lasse die Küchenmaschine das Ganze mit dem Knethaken verrühren,
 bis die Hefebröckchen vollständig aufgelöst sind und das Wasser trüb und bräunlich geworden ist. Die Maschine rührt auch während der nächsten Schritte auf Stufe 3 von 7.
 
-2. Zucker, Salz, Olivenöl
-Zum Wasser-Hefegemisch gebe ich nun den Zucker, das Salz und das Olivenöl hinzu.
+2. Zucker, Olivenöl
+Zum Wasser-Hefegemisch gebe ich nun den Zucker und das Olivenöl hinzu.
 
 3. Haferflocken, Dinkel-Vollkornmehl
 Als Nächstes streue ich langsam die Haferflocken hinein und gebe Esslöffel für Esslöffel das Dinkel-Vollkornmehl hinein.
 
-4. Dinkelmehl Typ 630
-Während alles weiter vor sich hin rührt, kommt esslöffelweise auch das Dinkelmehl Typ 630 in die Schüssel. 
-Das dauert bei der benötigten Menge ein bisschen, aber dafür wird es schön gleichmäßig eingebracht.
+4. Dinkelmehl Typ 630, Salz
+Während alles weiter vor sich hin rührt, kommt dann auch das Dinkelmehl Typ 630 in die Schüssel.
+Ich nutze hierzu einen tiefen Suppenteller, der 3x hinterheinander mit 200 g Mehl befüllt und in die Rührschüssel entleert wird.
+Auf den vierten Teller kommen dann die verbleibenden 100 g Mehl. Das Mehl wird mit dem Salz vermischt und dann langsam in die Rührschüssel gegeben.
 
 5. Kneten
 Wenn alle Zutaten in der Schüssel sind, stelle ich die Küchenmaschine etwas schneller und lasse alles noch ordentlich weiter rühren, 
