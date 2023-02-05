@@ -49,27 +49,26 @@ Die Zusammensetzung der Zutaten wirkt sich auf Konsistenz, Volumen und Gewicht d
 ## Zubereitung
 
 ### Der Teig
-1. Wasser + Hefe
-Zunächst gebe ich das Wasser und die kleingebröselte Hefe in eine Backschüssel und lasse die Küchenmaschine das Ganze mit dem Knethaken verrühren,
-bis die Hefebröckchen vollständig aufgelöst sind und das Wasser trüb und bräunlich geworden ist. Die Maschine rührt auch während der nächsten Schritte auf Stufe 3 von 7.
+***1. Wasser + Hefe***
+Zunächst gebe ich das Wasser und die kleingebröselte Hefe in eine Backschüssel und lasse die Küchenmaschine das Ganze mit dem Knethaken verrühren, bis die Hefebröckchen vollständig aufgelöst sind und das Wasser trüb und bräunlich geworden ist. Die Maschine rührt auch während der nächsten Schritte auf Stufe 3 von 7.
 
-2. Zucker, Olivenöl
+***2. Zucker, Olivenöl***
 Zum Wasser-Hefegemisch gebe ich nun den Zucker und das Olivenöl hinzu.
 
-3. Haferflocken, Dinkel-Vollkornmehl
+***3. Haferflocken, Dinkel-Vollkornmehl***
 Als Nächstes streue ich langsam die Haferflocken hinein und gebe Esslöffel für Esslöffel das Dinkel-Vollkornmehl hinein.
 
-4. Dinkelmehl Typ 630, Salz
+***4. Dinkelmehl Typ 630, Salz***
 Während alles weiter vor sich hin rührt, kommt dann auch das Dinkelmehl Typ 630 in die Schüssel.
 Ich nutze hierzu einen tiefen Suppenteller, der 3x hinterheinander mit 200 g Mehl befüllt und in die Rührschüssel entleert wird.
 Auf den vierten Teller kommen dann die verbleibenden 100 g Mehl. Das Mehl wird mit dem Salz vermischt und dann langsam in die Rührschüssel gegeben.
 
-5. Kneten
+***5. Kneten***
 Wenn alle Zutaten in der Schüssel sind, stelle ich die Küchenmaschine etwas schneller und lasse alles noch ordentlich weiter rühren, 
 bis keine weißen Mehlreste mehr zu sehen sind und ein weicher Teig entstanden ist. Ich lasse den Teig meist ein paar Minuten laufen und 
 räume in der Zeit schon mal wieder die Küche auf und schaffe Platz im Kühlschrank.
 
-6. Abdecken u. Kaltstellen
+***6. Abdecken u. Kaltstellen***
 Ist der Teig fertig, decke ich die Schüssel mit einem umgedrehten Suppenteller ab und stelle die Schüssel in den Kühlschrank. 
 Dort bleibt der Teig dann für 8 Stunden (alternativ reicht bei Zimmertemperatur eine Wartezeit von ca. 1,5 Stunden).
 Der Teig sollte dann schön aufgehen. Bei zu langer Wartezeit quillt der Teig über, daher sollte man ihn gut im Auge behalten bzw. regelmäßig kontrollieren.
